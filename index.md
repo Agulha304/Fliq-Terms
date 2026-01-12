@@ -44,7 +44,7 @@ Fliq respects user privacy and follows these principles:
 
 If you have questions regarding this application, you may contact:
 
-**Email:** contact@fliq.app
+**Email:** giuliapeluzzos@gmail.com
 
 ---
 
